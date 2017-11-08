@@ -1,6 +1,8 @@
 untitled.html
 figures/1
 pqlkskrdtmo.html
+figures/2
+4eno9ei6e18.html
 gm1vvef8ne.html
 35f4n6956lo.html
 a17u52sbdlo.html
